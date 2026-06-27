@@ -1,4 +1,3 @@
-Here's the cleaned-up README keeping your personality and casual vibe:
 
 ---
 
